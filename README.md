@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Lavinha42 😁
+## Bem-vindo(a) ao perfil da Lauana 😁
 
  <div>
    <a href="https://github.com/lavinha42">
